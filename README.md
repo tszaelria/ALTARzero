@@ -10,20 +10,19 @@ $${\color{#4f6f86}"\space Do \space you \space feel \space at \space all \space 
 
 <h5 align="center"> A sinner in diguise. A saint to despise. I am Zoya. <h5/>
 
-[insert image w link]
+<h5 align="center">
+<a href="https://rentry.co/riotingsynner"><img src="https://64.media.tumblr.com/8ff6aa3322a1cff6c75c308d80edcdd2/f6c16e4551d21c04-9e/s1280x1920/c18acd9f79667360eab091df3911cfe27dc9b953.pnj"></img></a>
+<h5/>
 
-
-<h5 align="center"> ੭　Zae 　˚ 　₊　They ~ He ~ She 　🔪
+<h5 align="center">  ੭　Zae 　˚ 　₊　They - He - She 　🔪
   
 　　💉    ﹕　@　altarzero　◞　🩸 　˚.◦
 <h5/>
 
 <h5/>
-<h5 align="center"> Ace　₊ andro-cetro triphic<h5/>
+<h5 align="center"> Aro / Ace !<h5/>
 
+<h5 align="center">
+<img src="https://64.media.tumblr.com/d375cd1384822242369b8e454f34d39b/f6c16e4551d21c04-38/s2048x3072/694d95674d8ab641234e728ba1ac8e40b4bbdeaf.pnj"/>
 
-
-[ending images or smth?]
-
-
-still a wip be patient
+Thanks 4 reading~<h5/>
